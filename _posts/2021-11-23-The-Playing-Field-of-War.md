@@ -17,7 +17,7 @@ and all I think is why?<br>
 Why do we choose to go to war?<br>
 I ake for answer, where none makes sense.<br>
 Fight for freedom, fight for us,<br>
-fear the whom's, not the why's<br>
+fear the whom, not the whys<br>
 
 Broken glass and shattered dreams<br>blood polluting our water streams<br>Big man, small men, tiny man<br>the violence of supremes<br>
 
